@@ -14,6 +14,6 @@ Auth:
 
 Sebastian Ariza Parra
 
-Msc. Juan Sebastian Malagón Torres
+Msc. Juan Sebastian Malagón Torres - https://co.linkedin.com/in/juan-sebastian-malagón-torres-86039a164
 
-Phd. Ivan Mauricio Ayala Diaz
+Phd. Ivan Mauricio Ayala Diaz  - https://co.linkedin.com/in/ivan-m-ayala-diaz-78a25246
